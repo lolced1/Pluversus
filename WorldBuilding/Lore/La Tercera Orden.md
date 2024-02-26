@@ -1,0 +1,8 @@
+# La Tercea Orden
+No son descendientes directos de la primera orden, pero, tienen una visión de lo que debería ser "La Orden", el representante directo debería ser elegido por el voto mayoritario de todos los miembros de la alta mesa, viendo estos por los intereses de sus respectivos países, lo contrario de lo que opina La Segunda Orden.
+
+Varios de los países que formaron La Primera y después La Segunda Orden se levantaron 
+
+
+
+La primera orden fue el imperio que tras eones de batallas, logró unificar a todos los países del continente bajo un mismo nombre, tras un milenio de existencia, la gran mayoría de los países se independizaron en el llamado "Gran Colapso" dónde de la noche a la mañana, la primera orden perdió a más del 75% de su territorio original, aunque sus fuerzas armadas eran muy superiores, por meros números iban a ser aniquilados, así que después de pocos años de guerra, firmaron la paz con todos los países reconociendo sus independencias, de ahí, se rebautizó al imperio como "la segunda orden" la cuál fue adoptando países ahora por la vía diplomática y pacífica, lo que pasa es que estos países que fueron adoptando se amotinaron y viendo debilidad en la segunda orden, declararon la independencia formando "La Tercera Orden" y entrando en guerra inmediatamente con La Segunda Orden, han estado en una guerra enfrascada por ya algunas décadas y no parece que vaya a haber un ganador por el momento
